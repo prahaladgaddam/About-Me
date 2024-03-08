@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @prahaladgaddam
-- 👀 I’m interested in Data Analytics
+- 👀 I’m interested in Climate Change & Sustainability 
 - 🌱 I’m currently learning Data Analytics
 - 💞️ I’m looking to collaborate on Data Analytics in climate and Sustainability
 - 📫 How to reach me linkedIn.com/prahaladgaddam, twitter.com/prahalad_gaddam
