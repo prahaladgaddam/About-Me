@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @prahaladgaddam
 - 👀 I’m interested in Climate Change & Sustainability 
 - 🌱 I’m currently learning Data Analytics
-- 💞️ I’m looking to collaborate on Data Analytics|Marketing in climate and Sustainability startups
+- 💞️ I’m looking to collaborate on Data Analytics| Digital Marketing in climate and Sustainability startups
 - 📫 How to reach me linkedIn.com/prahaladgaddam, twitter.com/prahalad_gaddam
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I can walk all day long😄
